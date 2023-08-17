@@ -1,1 +1,0 @@
-# ynnayla-kalkusegitiga.github.io
